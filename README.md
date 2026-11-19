@@ -1,0 +1,2 @@
+# Nordic-talents-
+Jesse Jame 
